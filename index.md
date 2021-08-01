@@ -6,5 +6,5 @@ Hoffentlich bis bald!
 
 Infos über die Durchführung am Freitag oder Samstag ab 12:00
 
-Lieb Grüusse!<br>
+Liebe Grüsse!<br>
 Das OK
