@@ -1,4 +1,7 @@
-**Das Alliswilfest 2023 findet am Freitag 11.08.2023 ab 18:00 statt <br>**
+**Das Alliswilfest 2024 findet bei gutem Wetter am Freitag 09.08.2024 ab 18:00 statt <br>**
+
+Über die Durchführung informieren wir hier ab Freitag 12:00 Uhr<br>
+Es gibt kein Verschiebedatum
 
 Wir freuen uns!<br>
 Das OK
